@@ -1,4 +1,4 @@
-![tigefa-cover-github](https://bannero.tigefa.workers.dev/)
+![tigefa-cover-github](https://bannero.my.id)
 
 <hr />
 
